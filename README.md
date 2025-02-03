@@ -1,1 +1,1 @@
-# Project-Wikipanorma
+# Project-Wikipanorama
